@@ -1,0 +1,1 @@
+Process: I just follow the instructions and most of the time I got it right but sometimes I don't understand something so I asked AI to clarify and it did a great job. I think AI did a better a job at illustrating concepts, probably because English is my second language and I learn better with my native language.
